@@ -34,7 +34,7 @@ Clocking in at 10¢ cheaper for a bowl than previous locations, you're taking th
  
 As you eat you notice two things simultaneously - the A.C. is popping off, an important note for the hot summer days that, if you're reading this, are now mostly over. The second, is the music. Not too EDM, but not not too EDM either. A perfect synth-pop blend that plays in the background while you dig into your bowl. 
 
-Unfortunately, of the two bathrooms at this location, one was closed and the other was out of toilet paper. No worries, as it's not a far ride back to your place.... or mine. This location is one block away from the 1,2,3,F,M, and L lines. Mamma Mia that's well connected. There are some buses too, but we can wave at them as they go by. 
+Unfortunately, of the two bathrooms at this location, one was closed and the other was out of toilet paper. No worries, as it's not a far ride back to your place.... or mine. This location is one block away from the 1, 2, 3, F, M, and L lines. Mamma Mia that's well connected. There are some buses too, but we can wave at them as they go by. 
 
 Overall, this Chipotle is definitely one of the best three we've visited! 
 
