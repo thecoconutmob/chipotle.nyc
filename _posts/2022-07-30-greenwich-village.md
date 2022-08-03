@@ -1,4 +1,4 @@
-# greenwich village (21/25)
+# greenwich village
 
 address: 504 6th Ave, 10011
 
@@ -16,6 +16,8 @@ ambiance & aesthetics: 4/5
 price : $10.60
 
 bathroom code (as of 30th July, 2022): 3915
+
+**score: 21/25**
 
 ## review
 
