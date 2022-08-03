@@ -21,7 +21,7 @@ bathroom code (as of 30th July, 2022): 3915
 
 ## review
 
-Located on the corner of 13th St and 6th Ave, this Chipotle ™ is a testament to the growing resistance against the encroaching corporate take-over of lower Manhattan. This one story casual eatery stands alone in defiance, surrounded by veritable skyscrapers in ever direction. 
+Located on the corner of 13th St and 6th Ave, this Chipotle ™ is a testament to growing resistance against the encroaching corporate take-over of lower Manhattan. This one story casual eatery stands alone in defiance, surrounded by veritable skyscrapers in ever direction. 
 Clean from the outside, the stark white facade lures in the passerby with the promise of a safe haven from the rats. After all, who amongst us in Manhattan would abnegate a bastion from the vermin that plague our city? 
 
 You walk in - hoping for a good meal - and you're definitely going to get one.
