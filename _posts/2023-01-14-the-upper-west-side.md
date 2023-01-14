@@ -48,7 +48,7 @@ Unfortunately, what could only be described by some diners as “repetitive tech
 
 You're done with your meal, it's a Friday night, you're on the Upper West Side. Where do you want to go now? How do you want to spend your night? Well, I live on the Upper West Side so come over. Or.... catch a film. 
 
-> Conveniently located just a few steps from an AMC with reclining seats, combining this Chipotle location with a movie makes for a great time with friends or a casual date night.^1 
+> Conveniently located just a few steps from an AMC with reclining seats, combining this Chipotle location with a movie makes for a great time with friends or a casual date night.[^1] 
 
 Now, there's nothing casual about my date nights, that's for sure. But.... the movies are THE de-facto location for any sort of romantic activity, and that's undeniable. Throw in reclining seats and we are COOKING.
 
@@ -57,5 +57,5 @@ This is a fantastically located Chipotle, an amazingly kind-hearted-free-tortill
 
 ----
 
-^1 This exercept was provided by another Chipotle diner. It is not a paid advertisement and represents an unbiased and impartial review.
+[^1] This exercept was provided by another Chipotle diner. It is not a paid advertisement and represents an unbiased and impartial review.
 
