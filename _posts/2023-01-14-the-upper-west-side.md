@@ -42,7 +42,7 @@ As I watched the chef prepare the macédoine that crested the top of my bowl, I 
 They say that optimism is the psychological alchemy of turning belief into reality. I believe I read that on Twitter. Or Pornhub. It’s hard to tell where inspiration comes from but I’d personally say it’s 50-50 Twitter and Pornhub right now. Perhaps it was because of Him, perhaps it was the magic in the air, or perhaps it was simply just the Live Laugh Love ™ of it all, but my tortilla was free today. Move over, NYC Marathon - a new bucket list item has appeared. 
 
 This free tortilla, accompanied by a surfeit of rice, a sauté of deliciousness, and an aroma of intoxication provided that Lacanian jouissance that fuels life. A dish that has married the unbelievable to the undefeatable has served as an initiation into the cult of culinary Epicureanism. 
-Dear Reader, at this point in the essay you may find yoruself wondeirng if this is too good to be true - where's the downside? Fret not, trouble lies ahead.
+Dear Reader, at this point in the essay you may find yourself wondeirng if this is too good to be true - where's the downside? Fret not, trouble lies ahead.
 
 Unfortunately, what could only be described by some diners as “repetitive techno” music flooded our ears as we ate and dined, transforming the Chipotle into some milquetoast Williamsburg coffee shop. Imagine you were at a rave, but everyone's MDMA was laced with Vallium. That's the vibe. Luckily, the food is amazing so we can overlook this. 
 
