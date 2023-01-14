@@ -23,7 +23,6 @@ bathroom code (as of 13th January, 2023): 5436
 
 ## review
 
-# 
 For this review, we decided to do something new. 
 
 So far, we've been exploring the Chipotle locations in Lower Manhattan. However, given the oft-quoted adage "new year, new me", we thought we ought to explore a new area  with the intention of bringing both new locations and new flavours to our readers.  
