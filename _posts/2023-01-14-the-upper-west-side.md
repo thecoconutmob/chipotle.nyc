@@ -41,13 +41,21 @@ As I watched the chef prepare the macédoine that crested the top of my bowl, I 
 
 They say that optimism is the psychological alchemy of turning belief into reality. I believe I read that on Twitter. Or Pornhub. It’s hard to tell where inspiration comes from but I’d personally say it’s 50-50 Twitter and Pornhub right now. Perhaps it was because of Him, perhaps it was the magic in the air, or perhaps it was simply just the Live Laugh Love ™ of it all, but my tortilla was free today. Move over, NYC Marathon - a new bucket list item has appeared. 
 
-Unfortunately, what could only be described by some diners as “repetitive techno” music flooded our ears as we ate and dined, transforming the Chipotle into some milquetoast Williamsburg coffee shop. 
-
-The best thing about the Chipotle is actually outside the restaurant, though. 
-
-Conveniently located just a few steps from an AMC with reclining seats, combining this Chipotle location with a movie makes for a great time with friends or a casual date night.
-
 This free tortilla, accompanied by a surfeit of rice, a sauté of deliciousness, and an aroma of intoxication provided that Lacanian jouissance that fuels life. A dish that has married the unbelievable to the undefeatable has served as an initiation into the cult of culinary Epicureanism. 
+Dear Reader, at this point in the essay you may find yoruself wondeirng if this is too good to be true - where's the downside? Fret not, trouble lies ahead.
+
+Unfortunately, what could only be described by some diners as “repetitive techno” music flooded our ears as we ate and dined, transforming the Chipotle into some milquetoast Williamsburg coffee shop. Imagine you were at a rave, but everyone's MDMA was laced with Vallium. That's the vibe. Luckily, the food is amazing so we can overlook this. 
+
+You're done with your meal, it's a Friday night, you're on the Upper West Side. Where do you want to go now? How do you want to spend your night? Well, I live on the Upper West Side so come over. Or.... catch a film. 
+
+> Conveniently located just a few steps from an AMC with reclining seats, combining this Chipotle location with a movie makes for a great time with friends or a casual date night.^1 
+
+Now, there's nothing casual about my date nights, that's for sure. But.... the movies are THE de-facto location for any sort of romantic activity, and that's undeniable. Throw in reclining seats and we are COOKING.
+
 
 This is a fantastically located Chipotle, an amazingly kind-hearted-free-tortilla-giving staff, a savoury experience, and it’s located right next to the cinema. If you’re able to overlook the music, and you’re able to brave the train (at night) to the Upper West Side, this Chipotle is the one for you.  
+
+----
+
+^1 This exercept was provided by another Chipotle diner. It is not a paid advertisement and represents an unbiased and impartial review.
 
